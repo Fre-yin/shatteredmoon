@@ -1,1 +1,1 @@
-Old Mare after Take down Legacy by today Standarts.
+Old Mare after take down. Legacy by today Standarts.
